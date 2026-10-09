@@ -1,4 +1,4 @@
-# Hi, I'm Pei-Hsin Chiu and you can call me Cindy👋
+# Hi, I'm Pei-Hsin (Cindy) Chiu 👋
 
 I'm a Ph.D. Candidate in Electrical and Computer Engineering at the **University of Iowa**, expecting to graduate in May 2027.
 
